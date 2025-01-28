@@ -36,3 +36,5 @@ If you have any questions, concerns, or feedback about this Privacy Policy or th
 
 Ifeanyi.emeagi@gmail.com
 Ifeanyi Emeagi
+
+By using this app, you agree to this Privacy Policy. If you do not agree, please discontinue use of the app.
